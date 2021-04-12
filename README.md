@@ -1,1 +1,1 @@
-# [toby fox tribute page](https://maximop2p.github.io/toby-fox-tribute/)
+# [toby fox tribute page](https://maximosan.github.io/toby-fox-tribute/)
